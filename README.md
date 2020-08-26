@@ -1,1 +1,1 @@
-Some codes in daily life.
+Some codes in daily life..
